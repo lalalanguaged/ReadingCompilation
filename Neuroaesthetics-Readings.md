@@ -1,0 +1,1 @@
+1. [Neuroaesthetics, 2014](https://pubmed.ncbi.nlm.nih.gov/24768244/)
